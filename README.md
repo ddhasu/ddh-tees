@@ -1,3 +1,4 @@
+## [ઢ](http://www.gujaratilexicon.com/dictionary/GG/%E0%AA%A2*/)
 
 ઢichau ( અલ્યા ! જો કેટલી બધી બુલેટ્સ )
 -----------------------------------
